@@ -1,6 +1,3 @@
-If something is broke please PM me on Discord: Kiro#5509
-<br>
-<br>
 # [New Noel (Nameless Player + Cursor Edit)](https://s.put.re/b8sZj47Z.osk)
 ![](https://s.put.re/tUgf5HJN.png)
 <br>
